@@ -1,1 +1,0 @@
-# Turgay-Projeler
